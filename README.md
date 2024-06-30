@@ -1,19 +1,57 @@
 Hello guy's! 
 
-I'm Lifiya 
+I'm LIFIYA
 
 About me
-___________________________________________
+______________________________________________________________________________________________________________________________________________________________________________
 Name-Lifiya Shaik 
 
 
 Qualification-Btech(pursuing)
 
-Address- Naidupet, Tirupati dist
+Address- Naidupet,Tirupati dist
 
-Language-Telugu, English, Hindi
+Strength-Honest,Leadership Qualities,Hardworking
 
-Hobbies -listening music driving
+Language-Telugu,English,Hindi
+
+Hobbies -listening music,driving
+
+
+
+
+
+
+
+
+Education Details
+______________________________________________________________________________________________________________________________________________________________________________
+
+SSC                   2018-2019
+Navodaya High School
+
+                      2019-2021
+Intermediate
+TMR Junior College
+
+                      2021-2025
+B.Tech
+NBKRIST
+
+
+
+
+
+
+
+
+
+
+
+Contact Me
+______________________________________________________________________________________________________________________________________________________________________________
+mail-21kb1a05f6@nbkrist.org
+
 
 
 
