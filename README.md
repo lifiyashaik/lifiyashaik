@@ -1,15 +1,6 @@
 Hello guy's! 
 
-
-
-
 I'm Lifiya 
-
-
-
-
-
-
 
 About me
 ___________________________________________
@@ -22,7 +13,7 @@ Address- Naidupet, Tirupati dist
 
 Language-Telugu, English, Hindi
 
-Hobbies -listening music 🎶
+Hobbies -listening music driving
 
 
 
